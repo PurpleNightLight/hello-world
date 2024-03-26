@@ -1,2 +1,2 @@
 # hello-world
-This repository is for practicing my GetHub Swagger
+This repository is for practicing my GetHub Swagger. I'm pretty much a retired veteran without the retiring but with the 100% disability. My biggest enemy is myself and ADHD overwhelment. My best friend is my lady, who has been by my side for 5 years. Even through COVID so you know it's real. I have so many game ideas bursting from my head but there is so much I need to learn before I can even think about building my own games from scratch...or is it? 
